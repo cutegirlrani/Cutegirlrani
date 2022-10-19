@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **React vua**
 
-- 📫 How to reach me **ranishaw420.420@gmail.com**
+- 📫 How to reach me **https://t.me/cute_girl_rani**
 
 - ⚡ Fun fact **I think I am Funny**
 
